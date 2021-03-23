@@ -1,1 +1,0 @@
-# mathsriyadiyat.github.io
